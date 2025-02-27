@@ -15,7 +15,7 @@ class script(object):
 
 sɪᴢᴇ ⚙️: {file_size}
 
-Jᴏɪɴ [ᴜᴘᴅᴀᴛᴇ ᴄʜᴀɴɴᴇʟ](https://t.me/javchindoadultvideo)</b>""" 
+Jᴏɪɴ [ᴜᴘᴅᴀᴛᴇ ᴄʜᴀɴɴᴇʟ](https://t.me/Luxe_Cultured)</b>""" 
 
 # Don't Remove Credit Tg - @VJ_Botz
 # Subscribe YouTube Channel For Amazing Bot https://youtube.com/@Tech_VJ
